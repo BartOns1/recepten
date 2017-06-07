@@ -16,6 +16,7 @@ Nasi Goreng
 - 1 teaspoon ground coriander
 - 1 teaspoon ground cumin
 - 3 tablespoons sweet soy sauce (Indonesian kecap manis)
+- cocosnut milk
 
 ## Preparation
 
