@@ -10,6 +10,7 @@ Pancakes
 - 1 1/4 cups milk
 - 1 egg
 - 3 tablespoons butter, melted
+- some butter
 
 ## Preparation
 
