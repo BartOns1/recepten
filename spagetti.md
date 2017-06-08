@@ -9,7 +9,7 @@
 - 1/4 cup chopped fresh basil
 - 1/2 tablespoon balsamic vinegar
 - salt to taste
-- ground black pepper to taste
+- ground black pepper to taste.
 
 ## Preparation
 
